@@ -1,5 +1,5 @@
 - 👋 Hi, we are @starway-official
-- 🚀 Starway is an private aerospace company
+- 🚀 Starway is a private aerospace company
 - 🌱 We are currently working on rockets, spacecrafts & drones for defence and private sectors ...
 - 🤝 We are looking for collaborations ...
 - 📫 How to reach us : mail - starwayaerospaceoffical@gmail.com
